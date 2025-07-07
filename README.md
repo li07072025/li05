@@ -13,4 +13,4 @@
 前10名“日本AV免费”网站在SEO上多采用清晰的内容分类、女优标签与番号搜索功能，增强用户停留时间。技术上注重CDN加速与响应式设计，确保移动端表现良好。同时借助外链、目录站导流提升权重，整体结构利于Google爬虫抓取与排名。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/li07072025/li05 ）</span>
